@@ -1,4 +1,4 @@
----------------The Path Forward: Predictions for 2030-----------------
+---------------The Path Forward: Predictions for 2030------------------
 
 As we look toward the end of the decade, the synergy between human 
 intelligence and artificial intelligence will likely define the "New Normal"
